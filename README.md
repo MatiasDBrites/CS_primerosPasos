@@ -18,4 +18,14 @@
 6
 ![image](https://user-images.githubusercontent.com/104856701/211172223-b760eacf-bb9d-409b-a297-6db379b2759e.png)
 
+7
+[![7.png](https://i.postimg.cc/fyKwVQ8r/7.png)](https://postimg.cc/sGMFLqdY)
 
+8
+[![8.png](https://i.postimg.cc/y6X6Q07y/8.png)](https://postimg.cc/9z0jzRRD)
+
+9
+[![9.png](https://i.postimg.cc/rFfVcc0d/9.png)](https://postimg.cc/GHswJWjr)
+
+10
+[![10.png](https://i.postimg.cc/jdxxGC50/10.png)](https://postimg.cc/K4WhTGBJ)
